@@ -1,2 +1,2 @@
 # Uniquebeat
-I am introvert.I make games.
+I'm an introvert.I make  videogames as a hobby.
